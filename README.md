@@ -11,3 +11,6 @@ idk what to put here. just wanted a cool profile
 
 
 ➤ sign ata / check out my shared rentry !! 
+
+
+➤ i need more spotify moots pls

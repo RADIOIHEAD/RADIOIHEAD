@@ -4,13 +4,3 @@
 
 she said "If you were me, you'd do the same 'cause I can't take it anymore."
 
-
-idk what to put here. just wanted a cool profile
-
-➤ i encourage you to whisper 
-
-
-➤ sign ata / check out my shared rentry !! 
-
-
-➤ i need more spotify moots pls

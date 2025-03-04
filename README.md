@@ -2,5 +2,8 @@
 
 
 
-she said "If you were me, you'd do the same 'cause I can't take it anymore."
+I swear, you can take control
+
+
+Control of how my heart bleeds
 

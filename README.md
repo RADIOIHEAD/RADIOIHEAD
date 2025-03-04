@@ -2,9 +2,8 @@
 
 
 
-I swear, you can take control
+"I swear, you can take control,
 
 
-
-Control of how my heart bleeds
+control of how my heart bleeds." 
 

@@ -6,4 +6,4 @@ i like to play and draw
 
 i am forever socially awkward and will continue to make a fool out of myself 
 
-otherwise.. int! but dni weirdos lulll
+otherwise.. int! 

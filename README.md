@@ -2,8 +2,6 @@
 
 hi im soren
 
-transmasc & 18 !!
-
 uhhhjf im pretty socially awkward but i love having one and one convos in whispers 
 
 

@@ -8,7 +8,7 @@ uhhhjf im pretty socially awkward but i love having one and one convos in whispe
 
 idk im a pretty hashtag chillguy slash jay 
 
-i genuinely spend too much time on pt 
+i genuinely spend too much time on pt im going insane
 
 
 ![](https://komarev.com/ghpvc/?username=your-github-digital4ngst&color=ff69b4)

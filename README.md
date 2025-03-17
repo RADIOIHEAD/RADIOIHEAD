@@ -2,7 +2,7 @@
 
 hi im soren
 
-uhhhjf im pretty socially awkward but i love having one and one convos in whispers 
+uhhhjf im pretty socially awkward 
 
 
 

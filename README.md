@@ -3,6 +3,7 @@
 ![sunny day (1)](https://github.com/user-attachments/assets/9c71c6d2-ae08-4c23-a297-ff0f14cc5f58)
 
 
+PLEASE INTERACT I AM LONELY AND EANT FRIENDS
 
 
 

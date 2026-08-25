@@ -1,3 +1,3 @@
 
 
-![_ (24) (1)](https://github.com/user-attachments/assets/dbdea651-cd76-4a37-8300-f8d4010442ee)
+<img width="736" height="414" alt="_ (41) (1)" src="https://github.com/user-attachments/assets/aeeb10fb-50bc-42d6-8bb6-7075cf2d1f51" />
